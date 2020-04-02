@@ -1,1 +1,0 @@
-# paranpointe.github.io
